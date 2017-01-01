@@ -1,1 +1,1 @@
-# HAMIdealist
+# 理想主义 Idealist
